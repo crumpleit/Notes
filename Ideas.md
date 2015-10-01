@@ -1,4 +1,6 @@
 ===
+
+===
 hit and sail
 gifted black teenager plays football at cass tech. summer before senior year. wants to go to UM. he’s too skinny tho. kinda like this guy ends up at Bowling Green: http://247sports.com/Player/Brian-Sanders-25220
 from east side. has a girlfriend. hotty.
@@ -8,7 +10,7 @@ later finds out on TV news the guy died. the ‘witnesses’ lie about what happ
 Kid he tells his dad what happened. dad calls in a favor. they go to sicilian guy at his home in sterling heights.
 Sicilian guys gets him in the merchant marines, false IDs http://www.lcaships.com/careers/. 
 calls in for a three on two: 48222 - boards his boat from the Wescott.
-Winters in Ajax, Ontario.
+Winters in Ajax, Ontario
 then what? on the run from the Charbel family?
 grows in his love of the sweetwater seas.
 ===
@@ -29,7 +31,4 @@ Where does death come in?
 Entropy?
 Timelessness of APIs
 Claude Shannon on the Boyne
-
-
-
-
+===
